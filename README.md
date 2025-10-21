@@ -3,7 +3,7 @@
 </div>
 
 <p align="center">🦇 wrench / josef. 22, he/ they. sev ♡ </p>
-<p align="center"> film nerd & music lover dude. </p>
+<p align="center"> film nerd & music lover dude. 🍷 </p>
 
 <div align="center">
   <img src="https://64.media.tumblr.com/06bd3e63922b0ec05cb19b48e97d51b7/f909e355bc3fbb5e-48/s250x400/de483c444ffa46a0a0a77fd4c39a7f157ebe4f26.gifv">
