@@ -2,8 +2,8 @@
   <img src="https://64.media.tumblr.com/efbe5bb5146a13ab03cc46ca7d33027b/e06884d1462b4333-8a/s500x750/35efe4f96a86f2538c31fafb70585c8b7ecfc931.pnj">
 </div>
 
-<p align="center">🦇 wrench / josef. 22, he/ they. sev ♡ </p>
-<p align="center"> below is my irl spouse! :p 🍷 </p>
+<p align="center">🦇 the dead will walk the earth!!! </p>
+<p align="center"> below is my irl spouse! ♡ 🍷 </p>
 
 <div align="center">
   <img src="https://64.media.tumblr.com/06bd3e63922b0ec05cb19b48e97d51b7/f909e355bc3fbb5e-48/s250x400/de483c444ffa46a0a0a77fd4c39a7f157ebe4f26.gifv">
