@@ -6,7 +6,7 @@
 <p align="center"> below is my irl spouse! ♡ 🍷 </p>
 
 <div align="center">
-  <img src="https://64.media.tumblr.com/06bd3e63922b0ec05cb19b48e97d51b7/f909e355bc3fbb5e-48/s250x400/de483c444ffa46a0a0a77fd4c39a7f157ebe4f26.gifv">
+  <img src="https://64.media.tumblr.com/049488fc9b6ac1ed0b940b125841a77e/80c6306dbc80ca45-ea/s250x400/f2917288b40e81535d786e61f735457bfc611423.webp">
 </div>
 
 <div align="center">
