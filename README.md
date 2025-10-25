@@ -1,5 +1,5 @@
 <div align="center">
-  <img src="https://64.media.tumblr.com/84bbd4a813acbbdc79364f498c4a5ee5/tumblr_nvtdxbOm2a1unl8s2o8_250.gifv">
+  <img src="https://64.media.tumblr.com/dcaea9884db2dd879445227e3af387ad/tumblr_inline_o5uohhlk8W1qbjat1_500.gif">
 </div>
 ‎ 
 <p align="center">🦇 the dead will walk the earth!!! </p>
