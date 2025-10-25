@@ -24,5 +24,5 @@
 </div>
 
 <div align="center">
-  <img src="https://64.media.tumblr.com/4ae868994d6936333beeed96544aef7b/e06884d1462b4333-ea/s250x400/d2503ad18cc2eb2d9988081e9017164eeb7b845b.gifv">
+  <img src="https://64.media.tumblr.com/56df7313f5ec2075d4ff4ce544e9e8eb/80c6306dbc80ca45-08/s400x600/e6a40fcc37c7e94542d70bb7fdbc6005c7e5b41e.gifv">
 </div>
