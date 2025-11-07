@@ -1,12 +1,12 @@
 <div align="center">
-  <img src="https://64.media.tumblr.com/84bbd4a813acbbdc79364f498c4a5ee5/tumblr_nvtdxbOm2a1unl8s2o8_250.gifv">
+  <img src="https://i.pinimg.com/originals/15/ad/68/15ad686309ef7a41234e925d3fb30683.gif">
 </div>
 ‎ 
 <p align="center">🦇 the dead will walk the earth!!! </p>
 <p align="center"> below is my irl spouse! ♡ 🍷 </p>
 
 <div align="center">
-  <img src="https://64.media.tumblr.com/049488fc9b6ac1ed0b940b125841a77e/80c6306dbc80ca45-ea/s250x400/f2917288b40e81535d786e61f735457bfc611423.webp">
+  <img src="https://64.media.tumblr.com/78692bbe572530d808ef221d2a6d1769/49d45a4b17390b88-ab/s2048x3072/7e72a4c76b9dcfdbe37fe295b85fdbee67bc823c.pnj">
 </div>
 
 <div align="center">
