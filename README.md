@@ -1,5 +1,5 @@
 <div align="center">
-  <img src="https://i.imgur.com/FUCvpvW.png">
+  <img src="https://i.imgur.com/TpidotM.png">
 </div>
 ‎ 
 <p align="center">🦇 the dead will walk the earth!!! </p>
