@@ -2,7 +2,7 @@
   <img src="https://i.imgur.com/wxYzGnF.png">
 </div>
 ‎ 
-<p align="center">🧟‍♀️ the dead will walk the earth!!! </p>
+<p align="center">🧟‍♀️ just know that i'm out there.. </p>
 <p align="center"> below is my irl spouse! ♡ 🍷 </p>
 
 <div align="center">
