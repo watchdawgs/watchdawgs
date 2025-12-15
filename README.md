@@ -24,5 +24,5 @@
 </div>
 
 <div align="center">
-  <img src="https://www.spriters-resource.com/media/asset_icons/138/140874.gif">
+  <img src="https://blob.gifcities.org/gifcities/ZTJWRY77GV5UIIDF4ZMUZFDYDMJQI3CY.gif">
 </div>
