@@ -24,5 +24,5 @@
 </div>
 
 <div align="center">
-  <img src="https://internetbee.neocities.org/image/art/pixels/Daft-Punk/Daft-Punk_TRON_2x.gif">
+  <img src="https://www.spriters-resource.com/media/asset_icons/138/140874.gif">
 </div>
