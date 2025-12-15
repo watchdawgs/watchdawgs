@@ -6,7 +6,7 @@
 <p align="center"> below is my irl spouse. . ♡ </p>
 
 <div align="center">
-  <img src="https://blob.gifcities.org/gifcities/AZKTKU7QXN3TB65IK2K3AA4725JWBOGD.gif">
+  <img src="https://blob.gifcities.org/gifcities/MZGWYXN56IEDVW2MLKF3WHUW2UMOHUCB.gif">
 </div>
 
 <div align="center">
