@@ -1,5 +1,5 @@
 <div align="center">
-  <img src="https://64.media.tumblr.com/7f327d423e1d331033213a7125ad5463/38807b3bc8574f14-7b/s250x400/c2a513d2acb9d5fda777a21b264b9ebfab452419.gifv">
+  <img src="https://blob.gifcities.org/gifcities/TJDT2JREDUSMITPCMXJ76THGKB5F6H7F.gif">
 </div>
 ‎ 
 <p align="center">🪼 just know that i'm out there! </p>
