@@ -2,7 +2,7 @@
   <img src="https://blob.gifcities.org/gifcities/TJDT2JREDUSMITPCMXJ76THGKB5F6H7F.gif">
 </div>
 ‎ 
-<p align="center">🪼 just know that i'm out there! </p>
+<p align="center">𓇼 just know that i'm out there! </p>
 <p align="center"> below is my irl spouse. . ♡ </p>
 
 <div align="center">
