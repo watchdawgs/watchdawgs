@@ -1,5 +1,5 @@
 <div align="center">
-  <img src="https://i.imgur.com/HGTHw9j.gif">
+  <img src="https://i.imgur.com/hUqVzpp.gif">
 </div>
 ‎ 
 <p align="center">𓇼 just know that i'm out there! </p>
