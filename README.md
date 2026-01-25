@@ -1,3 +1,8 @@
+<p align="center">
+ just remember that i'm out there.
+</p>
+
+
 <div align="center">
   <img src="https://media.tenor.co/iljgxrEQSx0AAAAd/brian-moser-brian.gif">
 </div>
