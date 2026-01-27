@@ -7,7 +7,7 @@
   <img src="https://media.tenor.co/iljgxrEQSx0AAAAd/brian-moser-brian.gif">
 </div>
 <p align="center">
-<a href="https://rentry.co/onearmedscissor">rentry</a> , <a href="https://en.pronouns.page/@WATCHDOGS2"> prnspage</a> , <a href="https://wrenchbbid.straw.page/"> doodle me sum!</a>
+<a href="https://rentry.co/onearmedscissor">rentry</a> , <a href="https://rentry.co/theguardiansofthegalaxy"> abt me</a> , <a href="https://wrenchbbid.straw.page/"> doodle me sum!</a>
 </p>
 <div align="center">
   <img src="https://64.media.tumblr.com/cbabc808355763f30dc0b22a25f9cb8d/1b85467f037d2f99-6b/s250x400/7a22c7f9bc349934a5d1d9ee8823860a392d50e5.gifv">  <img src="https://64.media.tumblr.com/2c686b43b74cd3b3206ec22bcff7d8c0/8c0831302f8beab5-95/s250x400/d89fcb64fe48f394209fde52c13867e36620d77e.gifv">
